@@ -1,9 +1,5 @@
-# FREE EDUCATION FOR ALL LEARNERS
-this Project is dedicated to all the beginner students who want to really learn and educate themselves in the area of tech. Me and my community will provide you all the things which you required to learn and so you Don't have to run here and there to finding good resources. 
+Light travels faster than sound. This is why some people appear bright until they speak.
 
-# Our Community is for Everyone and you can Join Too
-- if you know something..you can contribute here 
-- You got all the notes at one place. Congo Vroooo
-- 10% problm solved but 90% efforts will be yours 
-- Don't just download all of them but read and revise them frequently.
-- All the Best!
+When people ask me stupid questions, it is my legal obligation to give a sarcastic remark.
+
+It’s okay if you don’t like me. Not everyone has good taste.
